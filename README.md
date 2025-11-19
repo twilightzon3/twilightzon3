@@ -2,7 +2,7 @@
 <img src="https://i.pinimg.com/originals/d7/90/82/d790827796e1a64efeb38fc3bb504eae.gif" alt="Sample Image" width="600" height="300">
 </p>
 
-<p align="center">⠀⠀⠀⠀⠀⠀⠀![stalkers](https://komarev.com/ghpvc/?username=Twilightzon3)
+<p align="center"> ![stalkers](https://komarev.com/ghpvc/?username=Twilightzon3)
 
 
 <p align="center"> 𝐻𝒾 ! 
