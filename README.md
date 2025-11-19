@@ -2,6 +2,9 @@
 <img src="https://i.pinimg.com/originals/d7/90/82/d790827796e1a64efeb38fc3bb504eae.gif" alt="Sample Image" width="600" height="300">
 </p>
 
+⠀⠀⠀⠀⠀⠀⠀![stalkers](https://komarev.com/ghpvc/?username=PuppyDolls) ![](https://files.catbox.moe/v8zoff.gif) 
+
+
 <p align="center"> 𝐻𝒾 ! 
 
 <p align="center"> 𝒞𝒶𝓁𝓁 𝓂𝑒 𝒮𝒶𝓈𝓊 𝑜𝓇 𝒵𝒶𝒾 !
